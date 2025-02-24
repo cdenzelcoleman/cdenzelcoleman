@@ -1,4 +1,4 @@
-# 💫  **Hi, I'm Cameron Coleman**
+# 👨🏽‍💻  **Hi, I'm Cameron Coleman**
 
 ![CAMECODES](https://i.imgur.com/E75a3Ct.jpeg)
 
